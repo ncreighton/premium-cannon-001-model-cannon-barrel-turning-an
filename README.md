@@ -1,0 +1,2 @@
+# premium-cannon-001-model-cannon-barrel-turning-an
+Tired of losing track of your barrel's bore diameter or forgetting which carriage joint you last sanded? Stop juggling scattered notes and start building with precision.  The Model Cannon Barrel Turning and Carriage Log is the only Notion template designed specifically for scale cannon builders. It captures every critical measurement, material choi
